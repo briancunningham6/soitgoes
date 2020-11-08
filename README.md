@@ -1,2 +1,2 @@
 # soitgoes
-TBD
+Sunday evening on a November 2020
